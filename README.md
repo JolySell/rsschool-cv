@@ -1,1 +1,1 @@
-https://JolySell.github.io/rsschool-cv/cv
+https://JolySell.github.io/rsschool-cv/
